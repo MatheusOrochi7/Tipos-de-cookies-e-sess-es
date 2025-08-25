@@ -1,0 +1,1 @@
+# Tipos-de-cookies-e-sess-es
